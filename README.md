@@ -1,2 +1,2 @@
 # skin.evolve
-To Be Annouced
+The Next Step in Home Entertainment
